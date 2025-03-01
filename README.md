@@ -1,3 +1,3 @@
 # Hej REDFARM
 
-Shoutout Karl Kusse
+Shoutout Karla
